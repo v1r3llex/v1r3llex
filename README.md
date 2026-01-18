@@ -1,5 +1,5 @@
 # :dizzy: About Me:
-18yo advanced programmer from Poland
+19yo advanced programmer from Poland
 
 
 # :computer: Tech Stack:
