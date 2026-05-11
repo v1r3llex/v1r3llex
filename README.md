@@ -1,7 +1,7 @@
 # :dizzy: About Me:
 19yo advanced programmer from Poland
 
-https://discord.gg/DKnNjTCtDc — Best community for undetected cheats, game enhancements, FPS boosts, PC tweaks, and exclusive tools for multiple games.
+https://discord.gg/m7sD9sMBd7 — Best community for undetected cheats, game enhancements, FPS boosts, PC tweaks, and exclusive tools for multiple games.
 
 
 # :computer: Tech Stack:
